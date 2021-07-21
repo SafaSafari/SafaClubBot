@@ -10,4 +10,4 @@
 
 [Twitter](https://twitter.com/SafaSafari3)
 
-[حمایت از این پروژه](https://b2n.ir/n76832)
+[حمایت از این پروژه](https://b2n.ir/r38372)
