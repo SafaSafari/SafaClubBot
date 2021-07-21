@@ -4,7 +4,7 @@
 
 [@SafaClubBot](https://t.me/SafaClubbot)
 
-[ویرگول](https://vrgl.ir/a1oM6)
+[ویرگول](https://b2n.ir/s33777)
 
 [تلگرام بنده](https://t.me/SafaSafari)
 
